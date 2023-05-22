@@ -1,8 +1,796 @@
-nohttps://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent: [https](https://www.facebook.com/dialog/return/close#_=_https://www.youtube.com/watch?v=WPS7z2Y4Lwo)://docs.google.com/document/d/1AkfeCtwvu37ojThsRn-cEC0TuxBr0JG4/edit#heading=h.e6jwo9ujd0yxActivity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><imaghttps://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent Activity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><image><url>/profile/u/avatar.jpg?displayname=matthew https://www.youtube-nocookie.com/embed/https:/rainwizzard.blogspot.com/2023/01/papalegbanb-papalegbanb.htmlamos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recente><url>/profile/u/avatar.jpg?displayname=matthew https://www.youtube-nocookie.com/embed/https:/rainwizzard.blogspot.com/2023/01/papalegbanb-papalegbanb.htmlamos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recent 
+nohttps://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent: [https](https://www.facebook.com/dialog/return/close#_=_https://www.youtube.com/watch?v=WPS7z2Y4Lwo)://docs.google.com/document/d/1AkfeCtwvu37ojThsRn-cEC0TuxBr0JG4/edit#heading=h.e6jwo9ujd0yxActivity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><imaghttps://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent Activity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><image><url>/profile/u/avatar.jpg?displayname=matthew https://www.youtube-nocookie.com/embed/https:/rainwizzard.blogspot.com/2023/01/papalegbanb-papalegbanb.htmlamos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recente><url>/profile/u/avatar.jpg?displayname=matthew https://www.youtube-nocookie.com/embed/https:/rainwizzard.blogspot.com/2023/01/papalegbanb-papalegbanb.htmlamos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recent  
+
+
+Email Post to a Friend: Papa.legba.N.B
+The information you provide on this form will not be used for anything other than sending the email to your friend. This feature is not to be used for advertising or excessive self-promotion.
+
+Your Name	Larry/expo
+Friend's Email Address	
+Choose from contacts
+Enter a comma separated list of up to 10 email addresses.
+
+Required
+Message	
+Maximum 300 characters
+Please prove you're not a robot	
+
+Papa.Legba.506: Papa.Legba.506: Chodum91
+"https://www.google.com/imgres?imgurl=https://pbs.twimg.com/profile_images/778917395817791488/hnUWGtUk_400x400.jpg&tbnid=gyxfGm6IpsMVfM&vet=1&imgrefurl=https://twitter.com/bigsillyanimal&docid=cMUjdVjqfPp2oM&w=300&h=300&hl=en-CA&source=sh/x/im href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi3IV7-4it1EUN3WwsBozYwNrXG9LdwOcy2XdGFRA10tj4DP9elH390SfcGXBbi59ecD4kWzEDdjsHq557N6s3LRSnIN5yYEemp_pjm0LcYkvck_JpOlEoAWedG7t_Wt8QB_kbj_XWghrYB5qJc9HZ0ySBsiqiKt8rLeouf0jjp-7rQ7iVymLB_TVE8aA/s496/Img_2023_05_05_18_57_26.jpeg" style="display: block; padding: 1em 0; text-align: center; clear: left; float: left;">Papa.Legba.506: Papa.Legba.506: Larry/Wacker: : https://github.com/LarryExpohttps://www.blogger.com/blog/posts/1724479713966471345IME-Version: 1.0
+Date: Wed, 10 May 2023 14:17:59 -0300
+
+
+Message-ID:
+Subject: Re: New reply to a comment on "[Rock] Superstar"
+From: "Papa Legba.N.B"
+To: "Papa Legba.N.B"
+Content-Type: multipart/alternative; boundary="000000000000c8eb3105fb5a0d8e"
+
+--000000000000c8eb3105fb5a0d8e
+Content-Type: text/plain; charset="UTF-8"
+Content-Transfer-Encoding: quoted-printable
+
+image.png
+=3Ddrive_web>
+{{{
+"ns": "bl",
+"el": "embedded",
+"cpn": "ZgLdbAicpjYHifny",
+"ver": 2,
+"cmt": "245.56",
+"fmt": "18",
+"fs": "1",
+"rt": "278.962",
+"euri": "https://www.blogger.com/",
+"lact": 1,
+"cl": "530154564",
+"mos": 0,
+"state": "4",
+"volume": 65,
+"cbrand": "google",
+"cbr": "Chrome",
+"cbrver": "112.0.0.0",
+"c": "WEB_EMBEDDED_PLAYER",
+"cver": "1.20230507.00.00",
+"cplayer": "UNIPLAYER",
+"cmodel": "chromebook",
+"cos": "CrOS",
+"cosver": "14541.0.0",
+"cplatform": "DESKTOP",
+"hl": "en_US",
+"cr": "CA",
+"len": "333.183",
+"fexp":
+"23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24=
+415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556=
+108,39323074",
+"muted": "0",
+"vis": "2",
+"conn": "3",
+"docid": "picasacid",
+"vct": "245.560",
+"vd": "333.183",
+"vpl": "0.000-245.560",
+"vbu": "0.000-285.846",
+"vpa": "1",
+"vsk": "0",
+"ven": "0",
+"vpr": "1",
+"vrs": "4",
+"vns": "1",
+"vec": "null",
+"vemsg": "",
+"vvol": "0.65",
+"vdom": "1",
+"vsrc": "1",
+"vw": "1152",
+"vh": "768",
+"relative_loudness": "NaN",
+"optimal_format": "360p",
+"user_qual": 0,
+"release_version": "youtube.player.web_20230507_00_RC00",
+"debug_videoId": "picasacid",
+"0sz": "false",
+"op": "",
+"yof": "false",
+"dis": "",
+"gpu": "ANGLE_(Intel,_Mesa_Intel(R)_UHD_Graphics_(JSL),_OpenGL_ES_3.2)",
+"debug_playbackQuality": "medium",
+"debug_date": "Wed May 10 2023 14:15:29 GMT-0300 (Atlantic Daylight Time)=
+"
+} "ns": "bl",
+"el": "embedded",
+"cpn": "ZgLdbAicpjYHifny",
+"ver": 2,
+"cmt": "244.514",
+"fmt": "18",
+"fs": "0",
+"rt": "264.518",
+"euri": "https://www.blogger.com/",
+"lact": 0,
+"cl": "530154564",
+"mos": 0,
+"state": "8",
+"volume": 65,
+"cbrand": "google",
+"cbr": "Chrome",
+"cbrver": "112.0.0.0",
+"c": "WEB_EMBEDDED_PLAYER",
+"cver": "1.20230507.00.00",
+"cplayer": "UNIPLAYER",
+"cmodel": "chromebook",
+"cos": "CrOS",
+"cosver": "14541.0.0",
+"cplatform": "DESKTOP",
+"hl": "en_US",
+"cr": "CA",
+"len": "333.183",
+"fexp":
+"23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24=
+415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556=
+108,39323074",
+"muted": "0",
+"conn": "3",
+"docid": "picasacid",
+"vct": "244.514",
+"vd": "333.183",
+"vpl": "0.000-244.514",
+"vbu": "0.000-285.846",
+"vpa": "0",
+"vsk": "0",
+"ven": "0",
+"vpr": "1",
+"vrs": "4",
+"vns": "1",
+"vec": "null",
+"vemsg": "",
+"vvol": "0.65",
+"vdom": "1",
+"vsrc": "1",
+"vw": "400",
+"vh": "267",
+"relative_loudness": "NaN",
+"optimal_format": "360p",
+"user_qual": 0,
+"release_version": "youtube.player.web_20230507_00_RC00",
+"debug_videoId": "picasacid",
+"0sz": "false",
+"op": "",
+"yof": "false",
+"dis": "",
+"gpu": "ANGLE_(Intel,_Mesa_Intel(R)_UHD_Graphics_(JSL),_OpenGL_ES_3.2)",
+"debug_playbackQuality": "medium",
+"debug_date": "Wed May 10 2023 14:15:14 GMT-0300 (Atlantic Daylight Time)=
+"
+} "ns": "bl",
+"el": "embedded",
+"cpn": "ZgLdbAicpjYHifny",
+"ver": 2,
+"cmt": "245.56",
+"fmt": "18",
+"fs": "1",
+"rt": "278.962",
+"euri": "https://www.blogger.com/",
+"lact": 1,
+"cl": "530154564",
+"mos": 0,
+"state": "4",
+"volume": 65,
+"cbrand": "google",
+"cbr": "Chrome",
+"cbrver": "112.0.0.0",
+"c": "WEB_EMBEDDED_PLAYER",
+"cver": "1.20230507.00.00",
+"cplayer": "UNIPLAYER",
+"cmodel": "chromebook",
+"cos": "CrOS",
+"cosver": "14541.0.0",
+"cplatform": "DESKTOP",
+"hl": "en_US",
+"cr": "CA",
+"len": "333.183",
+"fexp":
+"23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24=
+415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556=
+108,39323074",
+"muted": "0",
+"vis": "2",
+"conn": "3",
+"docid": "picasacid",
+"vct": "245.560",
+"vd": "333.183",
+"vpl": "0.000-245.560",
+"vbu": "0.000-285.846",
+"vpa": "1",
+"vsk": "0",
+"ven": "0",
+"vpr": "1",
+"vrs": "4",
+"vns": "1",
+"vec": "null",
+"vemsg": "",
+"vvol": "0.65",
+"vdom": "1",
+"vsrc": "1",
+"vw": "1152",
+"vh": "768",
+"relative_loudness": "NaN",
+"optimal_format": "360p",
+"user_qual": 0,
+"release_version": "youtube.player.web_20230507_00_RC00",
+"debug_videoId": "picasacid",
+"0sz": "false",
+"op": "",
+"yof": "false",
+"dis": "",
+"gpu": "ANGLE_(Intel,_Mesa_Intel(R)_UHD_Graphics_(JSL),_OpenGL_ES_3.2)",
+"debug_playbackQuality": "medium",
+"debug_date": "Wed May 10 2023 14:15:29 GMT-0300 (Atlantic Daylight Time)=
+"
+}
+
+On Sat, 6 May 2023 at 04:14, YouTube wrote:
+
+> New reply to a comment on "[Rock] Superstar"
+> [image: Youtube Logo]
+>
+> ------------------------------
+> Maximiliano Cejas replied to Kody Williams's comment
+>
+> %3Fv%3DRBT5yhR_2Rw%26feature%3Dem-comments> [Rock]
+> Superstar
+> %3Fv%3DRBT5yhR_2Rw%26lc%3DUgwCJstDrhXI95s03yt4AaABAg.8a5xoq-BkDp9pMe5Gxvew4=
+%26feature%3Dem-comments>
+>
+> el/UCy-MVxEOz8PRwj3QToO6fzg%3Ffeature%3Dem-comments>
+> Maximiliano Cejas
+> Kush
+> Reply
+> %3Fv%3DRBT5yhR_2Rw%26lc%3DUgwCJstDrhXI95s03yt4AaABAg.8a5xoq-BkDp9pMe5Gxvew4=
+%26feature%3Dem-comments>
+> ------------------------------
+> If you no longer wish to receive emails about comments and replies, you
+> can unsubscribe
+> u=3D/email_unsubscribe%3Fuid%3D_xF29lLcIFGUJMk1PMFg1Q%26action_unsubscribe%=
+3DsgdDG3e9irbl8PvtRgE_uu7hsRF8MTY4MzM1NzI4NUAxNjgzMzU3Mjg1%26feature%3Dem-c=
+omments>.
+>
+> =C2=A9 2023 YouTube, LLC 901 Cherry Ave, San Bruno, CA 94066
+> [image: YouTube]
+> be> [image:
+> Twitter]
+>
+
+--000000000000c8eb3105fb5a0d8e
+Content-Type: text/html; charset="UTF-8"
+Content-Transfer-Encoding: quoted-printable
+
+
+il_drive_chip" style=3D"width:396px;height:18px;max-height:18px;background-=
+color:#f5f5f5;padding:5px;color:#222;font-family:arial;font-style:normal;fo=
+nt-weight:bold;font-size:13px;border:1px solid #ddd;line-height:1">=3D"https://drive.google.com/file/d/1pGQFU8dlE6dDvpGvIwozYCkgnC2I-eEq/view?=
+usp=3Ddrive_web" target=3D"_blank" style=3D"display:inline-block;overflow:h=
+idden;text-overflow:ellipsis;white-space:nowrap;text-decoration:none;paddin=
+g:1px 0px;border:none;width:100%" aria-label=3D"image.png">rtical-align: bottom; border: none;" src=3D"https://drive-thirdparty.google=
+usercontent.com/16/type/image/png">=C2=A015c;text-decoration:none;vertical-align:bottom">image.png{=
+{{
+=C2=A0 "ns": "bl",
+=C2=A0 "el": &quo=
+t;embedded",
+=C2=A0 "cpn": "ZgLdbAicpjYHifny",<=
+br>=C2=A0 "ver": 2,
+=C2=A0 "cmt": "245.56"=
+,
+=C2=A0 "fmt": "18",
+=C2=A0 "fs": &quo=
+t;1",
+=C2=A0 "rt": "278.962",
+=C2=A0 "e=
+uri": "https://www.blogger.c=
+om/",
+=C2=A0 "lact": 1,
+=C2=A0 "cl": &qu=
+ot;530154564",
+=C2=A0 "mos": 0,
+=C2=A0 "state&quo=
+t;: "4",
+=C2=A0 "volume": 65,
+=C2=A0 "cbrand=
+": "google",
+=C2=A0 "cbr": "Chrome",<=
+br>=C2=A0 "cbrver": "112.0.0.0",
+=C2=A0 "c&quot=
+;: "WEB_EMBEDDED_PLAYER",
+=C2=A0 "cver": "1.202=
+30507.00.00",
+=C2=A0 "cplayer": "UNIPLAYER",>=C2=A0 "cmodel": "chromebook",
+=C2=A0 "cos&quo=
+t;: "CrOS",
+=C2=A0 "cosver": "14541.0.0",<=
+br>=C2=A0 "cplatform": "DESKTOP",
+=C2=A0 "hl&qu=
+ot;: "en_US",
+=C2=A0 "cr": "CA",
+=C2=A0=
+"len": "333.183",
+=C2=A0 "fexp": "23=
+983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415=
+864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108=
+,39323074",
+=C2=A0 "muted": "0",
+=C2=A0 &quo=
+t;vis": "2",
+=C2=A0 "conn": "3",
+=
+=C2=A0 "docid": "picasacid",
+=C2=A0 "vct":=
+"245.560",
+=C2=A0 "vd": "333.183",
+=C2=
+=A0 "vpl": "0.000-245.560",
+=C2=A0 "vbu": =
+"0.000-285.846",
+=C2=A0 "vpa": "1",
+=C2=
+=A0 "vsk": "0",
+=C2=A0 "ven": "0&quot=
+;,
+=C2=A0 "vpr": "1",
+=C2=A0 "vrs": &qu=
+ot;4",
+=C2=A0 "vns": "1",
+=C2=A0 "vec&q=
+uot;: "null",
+=C2=A0 "vemsg": "",
+=C2=
+=A0 "vvol": "0.65",
+=C2=A0 "vdom": "1=
+",
+=C2=A0 "vsrc": "1",
+=C2=A0 "vw"=
+: "1152",
+=C2=A0 "vh": "768",
+=C2=A0 &q=
+uot;relative_loudness": "NaN",
+=C2=A0 "optimal_forma=
+t": "360p",
+=C2=A0 "user_qual": 0,
+=C2=A0 &q=
+uot;release_version": "youtube.player.web_20230507_00_RC00",=
+
+=C2=A0 "debug_videoId": "picasacid",
+=C2=A0 &quo=
+t;0sz": "false",
+=C2=A0 "op": "",
+=
+=C2=A0 "yof": "false",
+=C2=A0 "dis": &quot=
+;",
+=C2=A0 "gpu": "ANGLE_(Intel,_Mesa_Intel(R)_UHD_G=
+raphics_(JSL),_OpenGL_ES_3.2)",
+=C2=A0 "debug_playbackQuality&=
+quot;: "medium",
+=C2=A0 "debug_date": "Wed May =
+10 2023 14:15:29 GMT-0300 (Atlantic Daylight Time)"
+}=C2=A0 "n=
+s": "bl",
+=C2=A0 "el": "embedded",>=C2=A0 "cpn": "ZgLdbAicpjYHifny",
+=C2=A0 "ver&=
+quot;: 2,
+=C2=A0 "cmt": "244.514",
+=C2=A0 "f=
+mt": "18",
+=C2=A0 "fs": "0",
+=C2=
+=A0 "rt": "264.518",
+=C2=A0 "euri": "=
+https://www.blogger.com/",>=C2=A0 "lact": 0,
+=C2=A0 "cl": "530154564&quot=
+;,
+=C2=A0 "mos": 0,
+=C2=A0 "state": "8"=
+,
+=C2=A0 "volume": 65,
+=C2=A0 "cbrand": "goo=
+gle",
+=C2=A0 "cbr": "Chrome",
+=C2=A0 "c=
+brver": "112.0.0.0",
+=C2=A0 "c": "WEB_EMBE=
+DDED_PLAYER",
+=C2=A0 "cver": "1.20230507.00.00"=
+,
+=C2=A0 "cplayer": "UNIPLAYER",
+=C2=A0 "cmo=
+del": "chromebook",
+=C2=A0 "cos": "CrOS&qu=
+ot;,
+=C2=A0 "cosver": "14541.0.0",
+=C2=A0 "c=
+platform": "DESKTOP",
+=C2=A0 "hl": "en_US&=
+quot;,
+=C2=A0 "cr": "CA",
+=C2=A0 "len":=
+"333.183",
+=C2=A0 "fexp": "23983296,24004644,2=
+4007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,2444=
+3595,24468691,24486561,24516157,24532854,24534259,24556108,39323074",<=
+br>=C2=A0 "muted": "0",
+=C2=A0 "conn": &qu=
+ot;3",
+=C2=A0 "docid": "picasacid",
+=C2=A0 &=
+quot;vct": "244.514",
+=C2=A0 "vd": "333.18=
+3",
+=C2=A0 "vpl": "0.000-244.514",
+=C2=A0 &q=
+uot;vbu": "0.000-285.846",
+=C2=A0 "vpa": "=
+0",
+=C2=A0 "vsk": "0",
+=C2=A0 "ven&quot=
+;: "0",
+=C2=A0 "vpr": "1",
+=C2=A0 &quot=
+;vrs": "4",
+=C2=A0 "vns": "1",
+=C2=
+=A0 "vec": "null",
+=C2=A0 "vemsg": "&=
+quot;,
+=C2=A0 "vvol": "0.65",
+=C2=A0 "vdom&q=
+uot;: "1",
+=C2=A0 "vsrc": "1",
+=C2=A0 &=
+quot;vw": "400",
+=C2=A0 "vh": "267",<=
+br>=C2=A0 "relative_loudness": "NaN",
+=C2=A0 "o=
+ptimal_format": "360p",
+=C2=A0 "user_qual": 0,<=
+br>=C2=A0 "release_version": "youtube.player.web_20230507_00=
+_RC00",
+=C2=A0 "debug_videoId": "picasacid",>=C2=A0 "0sz": "false",
+=C2=A0 "op": &quot=
+;",
+=C2=A0 "yof": "false",
+=C2=A0 "dis&=
+quot;: "",
+=C2=A0 "gpu": "ANGLE_(Intel,_Mesa_In=
+tel(R)_UHD_Graphics_(JSL),_OpenGL_ES_3.2)",
+=C2=A0 "debug_play=
+backQuality": "medium",
+=C2=A0 "debug_date": &q=
+uot;Wed May 10 2023 14:15:14 GMT-0300 (Atlantic Daylight Time)"
+}=
+=C2=A0 "ns": "bl",
+=C2=A0 "el": "embe=
+dded",
+=C2=A0 "cpn": "ZgLdbAicpjYHifny",
+=C2=
+=A0 "ver": 2,
+=C2=A0 "cmt": "245.56",
+=
+=C2=A0 "fmt": "18",
+=C2=A0 "fs": "1&q=
+uot;,
+=C2=A0 "rt": "278.962",
+=C2=A0 "euri&q=
+uot;: "https://www.blogger.com/a>",
+=C2=A0 "lact": 1,
+=C2=A0 "cl": "53=
+0154564",
+=C2=A0 "mos": 0,
+=C2=A0 "state": &=
+quot;4",
+=C2=A0 "volume": 65,
+=C2=A0 "cbrand&quot=
+;: "google",
+=C2=A0 "cbr": "Chrome",
+=
+=C2=A0 "cbrver": "112.0.0.0",
+=C2=A0 "c": =
+"WEB_EMBEDDED_PLAYER",
+=C2=A0 "cver": "1.202305=
+07.00.00",
+=C2=A0 "cplayer": "UNIPLAYER",
+=
+=C2=A0 "cmodel": "chromebook",
+=C2=A0 "cos&quot=
+;: "CrOS",
+=C2=A0 "cosver": "14541.0.0",r>=C2=A0 "cplatform": "DESKTOP",
+=C2=A0 "hl&quo=
+t;: "en_US",
+=C2=A0 "cr": "CA",
+=C2=A0 =
+"len": "333.183",
+=C2=A0 "fexp": "239=
+83296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,244158=
+64,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,=
+39323074",
+=C2=A0 "muted": "0",
+=C2=A0 &quot=
+;vis": "2",
+=C2=A0 "conn": "3",
+=
+=C2=A0 "docid": "picasacid",
+=C2=A0 "vct":=
+"245.560",
+=C2=A0 "vd": "333.183",
+=C2=
+=A0 "vpl": "0.000-245.560",
+=C2=A0 "vbu": =
+"0.000-285.846",
+=C2=A0 "vpa": "1",
+=C2=
+=A0 "vsk": "0",
+=C2=A0 "ven": "0&quot=
+;,
+=C2=A0 "vpr": "1",
+=C2=A0 "vrs": &qu=
+ot;4",
+=C2=A0 "vns": "1",
+=C2=A0 "vec&q=
+uot;: "null",
+=C2=A0 "vemsg": "",
+=C2=
+=A0 "vvol": "0.65",
+=C2=A0 "vdom": "1=
+",
+=C2=A0 "vsrc": "1",
+=C2=A0 "vw"=
+: "1152",
+=C2=A0 "vh": "768",
+=C2=A0 &q=
+uot;relative_loudness": "NaN",
+=C2=A0 "optimal_forma=
+t": "360p",
+=C2=A0 "user_qual": 0,
+=C2=A0 &q=
+uot;release_version": "youtube.player.web_20230507_00_RC00",=
+
+=C2=A0 "debug_videoId": "picasacid",
+=C2=A0 &quo=
+t;0sz": "false",
+=C2=A0 "op": "",
+=
+=C2=A0 "yof": "false",
+=C2=A0 "dis": &quot=
+;",
+=C2=A0 "gpu": "ANGLE_(Intel,_Mesa_Intel(R)_UHD_G=
+raphics_(JSL),_OpenGL_ES_3.2)",
+=C2=A0 "debug_playbackQuality&=
+quot;: "medium",
+=C2=A0 "debug_date": "Wed May =
+10 2023 14:15:29 GMT-0300 (Atlantic Daylight Time)"
+}
+
+=
+On Sat, 6 =
+May 2023 at 04:14, YouTube <norep=
+ly@youtube.com> wrote:
+yle=3D"margin:0px 0px 0px 0.8ex;border-left:1px solid rgb(204,204,204);padd=
+ing-left:1ex">
 
 
 
-https://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent Activity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><image><url>/profile/u/avatar.jpg?displayname=matthew amos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recent 
+
+
+
+
+
+e">New reply to a comment on "[Rock] Superstar"
+bgcolor=3D"transparent" align=3D"center" valign=3D"top" cellspacing=3D"0" c=
+ellpadding=3D"0" border=3D"0">
+
+40">
+
+align=3D"center" cellspacing=3D"0" cellpadding=3D"0" border=3D"0">
+
+
+align=3D"left" valign=3D"center" cellspacing=3D"0" cellpadding=3D"0" borde=
+r=3D"0">
+
+n=3D"center">
+p;u=3D/" target=3D"_blank">975605845header_logo_size" height=3D"30" src=3D"https://ci4.googleuserconte=
+nt.com/proxy/PthfHh4dabM-mmndh96IvQ6G4ksxs_ZYh8RCz6vsHBjq1LNWTxeGmYeq5rAp4k=
+eu3LWWgrg6U3V-dT73IhKsAx8ApEzjm51zpIQoq-NBTPfcsMtzJyKeNigejIM1uE6_=3Ds0-d-e=
+1-ft#http://www.gstatic.com/youtube/img/branding/youtubelogo/1x/youtubelogo=
+_60.png" border=3D"0" style=3D"display: block;">
+
+
+
+
+
+-6921217805975605845inner-container-width" width=3D"600" style=3D"height:0p=
+x;border:none transparent;padding:0px;margin:0px">
+=3D"20">
+
+
+align=3D"center" valign=3D"center" cellspacing=3D"0" cellpadding=3D"0" bord=
+er=3D"0">
+
+
+
+Maximiliano Cejas replied to Kody Williams's comment
+
+dth=3D"596">
+
+
+
+
+font-size:14px;line-height:20px;padding:16px 0px;font-family:Roboto,sans-se=
+rif">
+dth=3D"100%">
+
+
+
+.youtube.com/attribution_link?a=3DQxPGNpkAFVNxx5kX&u=3D/watch%3Fv%3DRBT=
+5yhR_2Rw%26feature%3Dem-comments" target=3D"_blank">
+tical-align: middle;" src=3D"https://ci3.googleusercontent.com/proxy/_tEwkP=
+C0iYu_O-8cU0C7GBtXpnlbFuCYW777bBKZeC_xe2-qcxKN03vk0e6o6ccX0ARSmNhtqN7YzJE__=
+8ci0WWf=3Ds0-d-e1-ft#http://i.ytimg.com/vi/RBT5yhR_2Rw/mqdefault.jpg">
+
+
+">
+ube.com/attribution_link?a=3DQxPGNpkAFVNxx5kX&u=3D/watch%3Fv%3DRBT5yhR_=
+2Rw%26lc%3DUgwCJstDrhXI95s03yt4AaABAg.8a5xoq-BkDp9pMe5Gxvew4%26feature%3Dem=
+-comments" target=3D"_blank">
+[Rock] Superstar
+
+
+
+
+
+
+
+
+
+
+oboto,sans-serif">
+p;u=3D/channel/UCy-MVxEOz8PRwj3QToO6fzg%3Ffeature%3Dem-comments" target=3D"=
+_blank">
+;" border=3D"0" src=3D"https://yt3.ggpht.com/ytc/AGIKgqOpJn9lxdJemah58vty3r=
+yrGPv3noD5sOZKWQ=3Ds50-c-k-c0x00ffffff-no-rj">
+
+
+f">
+
+Maximiliano Cejas
+
+
+
+Kush
+
+
+p;u=3D/watch%3Fv%3DRBT5yhR_2Rw%26lc%3DUgwCJstDrhXI95s03yt4AaABAg.8a5xoq-BkD=
+p9pMe5Gxvew4%26feature%3Dem-comments" style=3D"font-family:Roboto,sans-seri=
+f;color:rgb(6,95,212);text-decoration:none;font-size:14px;font-weight:bold;=
+text-transform:uppercase" target=3D"_blank">
+Reply
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+er-right-style:initial;border-bottom-style:initial;border-left-style:initia=
+l;border-right-color:initial;border-bottom-color:initial;border-left-color:=
+initial;border-top-style:solid;border-top-color:rgb(234,234,234);margin-bot=
+tom:16px;padding:0px">
+
+
+"0" cellpadding=3D"0" border=3D"0">
+
+117);font-size:12px;line-height:16px;font-family:Roboto,sans-serif;letter-s=
+pacing:0px">
+If you no longer wish to receive emails about comments and replies, you can=
+NpkAFVNxx5kX&u=3D/email_unsubscribe%3Fuid%3D_xF29lLcIFGUJMk1PMFg1Q%26ac=
+tion_unsubscribe%3DsgdDG3e9irbl8PvtRgE_uu7hsRF8MTY4MzM1NzI4NUAxNjgzMzU3Mjg1=
+%26feature%3Dem-comments" style=3D"text-decoration:none;color:rgb(6,95,212)=
+" target=3D"_blank">unsubscribe.
+
+
+
+=3D"16" cellspacing=3D"0" cellpadding=3D"0" border=3D"0">
+
+"16">
+
+
+
+
+117);font-size:12px;line-height:16px;font-family:Roboto,sans-serif;letter-s=
+pacing:0px;text-decoration:none">
+=C2=A9 2023 YouTube, LLC 901 Cherry Ave, San Bruno, CA 94066
+
+
+
+=3D"16" cellspacing=3D"0" cellpadding=3D"0" border=3D"0">
+
+"16">
+
+
+
+
+
+
+
+
+40">
+
+
+
+" height=3D"18" align=3D"left" style=3D"background-repeat:no-repeat;backgro=
+und-size:100% 100%" cellspacing=3D"0" cellpadding=3D"0" border=3D"0">
+
+40">
+
+p;u=3D/youtube" target=3D"_blank">
+=3D"https://ci4.googleusercontent.com/proxy/vmExKFYs4Fg7CAacWYUSlpSYjGj92kC=
+b9zQZpc6ZWO1n4_GjVOXQfJFzVODgwEhXicFK8rr72oAtI_vDW2YNcKKqEN5aLKAeeO-afIObVM=
+nauf1QBJcU_Q=3Ds0-d-e1-ft#https://www.gstatic.com/youtube/img/email/youtube=
+_email_icon_grey.png" height=3D"18" border=3D"0">
+
+
+
+---------- forwarded message --------- from: papa legba.n.b date: wed, 10 may 2023 at 14:17 subject: re: new reply to a comment on "[rock] superstar" to: papa legba.n.b image.png {{{ "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "245.56", "fmt": "18", "fs": "1", "rt": "278.962", "euri": "https://www.blogger.com/", "lact": 1, "cl": "530154564", "mos": 0, "state": "4", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "vis": "2", "conn": "3", "docid": "picasacid", "vct": "245.560", "vd": "333.183", "vpl": "0.000-245.560", "vbu": "0.000-285.846", "vpa": "1", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "1152", "vh": "768", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time)" } "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "244.514", "fmt": "18", "fs": "0", "rt": "264.518", "euri": "https://www.blogger.com/", "lact": 0, "cl": "530154564", "mos": 0, "state": "8", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "conn": "3", "docid": "picasacid", "vct": "244.514", "vd": "333.183", "vpl": "0.000-244.514", "vbu": "0.000-285.846", "vpa": "0", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "400", "vh": "267", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:14 gmt-0300 (atlantic daylight time)" } "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "245.56", "fmt": "18", "fs": "1", "rt": "278.962", "euri": "https://www.blogger.com/", "lact": 1, "cl": "530154564", "mos": 0, "state": "4", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "vis": "2", "conn": "3", "docid": "picasacid", "vct": "245.560", "vd": "333.183", "vpl": "0.000-245.560", "vbu": "0.000-285.846", "vpa": "1", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "1152", "vh": "768", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time)" } on sat, 6 may 2023 at 04:14, youtube wrote:
+
+Images
+Videos
+Books
+News
+Shopping
+Maps
+Flights
+Finance
+All filters
+Feedback
+Tools
+"{{{" (and any subsequent words) was ignored because we limit queries to 32 words.
+No results found for ---------- forwarded message --------- from: papa legba.n.b date: wed, 10 may 2023 at 14:17 subject: re: new reply to a comment on "[rock] superstar" to: papa legba.n.b image.png {{{ "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "245.56", "fmt": "18", "fs": "1", "rt": "278.962", "euri": "https://www.blogger.com/", "lact": 1, "cl": "530154564", "mos": 0, "state": "4", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "vis": "2", "conn": "3", "docid": "picasacid", "vct": "245.560", "vd": "333.183", "vpl": "0.000-245.560", "vbu": "0.000-285.846", "vpa": "1", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "1152", "vh": "768", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time)" } "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "244.514", "fmt": "18", "fs": "0", "rt": "264.518", "euri": "https://www.blogger.com/", "lact": 0, "cl": "530154564", "mos": 0, "state": "8", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "conn": "3", "docid": "picasacid", "vct": "244.514", "vd": "333.183", "vpl": "0.000-244.514", "vbu": "0.000-285.846", "vpa": "0", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "400", "vh": "267", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:14 gmt-0300 (atlantic daylight time)" } "ns": "bl", "el": "embedded", "cpn": "zgldbaicpjyhifny", "ver": 2, "cmt": "245.56", "fmt": "18", "fs": "1", "rt": "278.962", "euri": "https://www.blogger.com/", "lact": 1, "cl": "530154564", "mos": 0, "state": "4", "volume": 65, "cbrand": "google", "cbr": "chrome", "cbrver": "112.0.0.0", "c": "web_embedded_player", "cver": "1.20230507.00.00", "cplayer": "uniplayer", "cmodel": "chromebook", "cos": "cros", "cosver": "14541.0.0", "cplatform": "desktop", "hl": "en_us", "cr": "ca", "len": "333.183", "fexp": "23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074", "muted": "0", "vis": "2", "conn": "3", "docid": "picasacid", "vct": "245.560", "vd": "333.183", "vpl": "0.000-245.560", "vbu": "0.000-285.846", "vpa": "1", "vsk": "0", "ven": "0", "vpr": "1", "vrs": "4", "vns": "1", "vec": "null", "vemsg": "", "vvol": "0.65", "vdom": "1", "vsrc": "1", "vw": "1152", "vh": "768", "relative_loudness": "nan", "optimal_format": "360p", "user_qual": 0, "release_version": "youtube.player.web_20230507_00_rc00", "debug_videoid": "picasacid", "0sz": "false", "op": "", "yof": "false", "dis": "", "gpu": "angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2)", "debug_playbackquality": "medium", "debug_date": "wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time)" } on sat, 6 may 2023 at 04:14, youtube wrote:.
+Results for ---------- forwarded message --------- from: papa legba.n.b date: wed, 10 may 2023 at 14:17 subject: re: new reply to a comment on [rock] superstar to: papa legba.n.b image.png {{{ ns: bl, el: embedded, cpn: zgldbaicpjyhifny, ver: 2, cmt: 245.56, fmt: 18, fs: 1, rt: 278.962, euri: https://www.blogger.com/, lact: 1, cl: 530154564, mos: 0, state: 4, volume: 65, cbrand: google, cbr: chrome, cbrver: 112.0.0.0, c: web_embedded_player, cver: 1.20230507.00.00, cplayer: uniplayer, cmodel: chromebook, cos: cros, cosver: 14541.0.0, cplatform: desktop, hl: en_us, cr: ca, len: 333.183, fexp: 23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074, muted: 0, vis: 2, conn: 3, docid: picasacid, vct: 245.560, vd: 333.183, vpl: 0.000-245.560, vbu: 0.000-285.846, vpa: 1, vsk: 0, ven: 0, vpr: 1, vrs: 4, vns: 1, vec: null, vemsg: , vvol: 0.65, vdom: 1, vsrc: 1, vw: 1152, vh: 768, relative_loudness: nan, optimal_format: 360p, user_qual: 0, release_version: youtube.player.web_20230507_00_rc00, debug_videoid: picasacid, 0sz: false, op: , yof: false, dis: , gpu: angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2), debug_playbackquality: medium, debug_date: wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time) } ns: bl, el: embedded, cpn: zgldbaicpjyhifny, ver: 2, cmt: 244.514, fmt: 18, fs: 0, rt: 264.518, euri: https://www.blogger.com/, lact: 0, cl: 530154564, mos: 0, state: 8, volume: 65, cbrand: google, cbr: chrome, cbrver: 112.0.0.0, c: web_embedded_player, cver: 1.20230507.00.00, cplayer: uniplayer, cmodel: chromebook, cos: cros, cosver: 14541.0.0, cplatform: desktop, hl: en_us, cr: ca, len: 333.183, fexp: 23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074, muted: 0, conn: 3, docid: picasacid, vct: 244.514, vd: 333.183, vpl: 0.000-244.514, vbu: 0.000-285.846, vpa: 0, vsk: 0, ven: 0, vpr: 1, vrs: 4, vns: 1, vec: null, vemsg: , vvol: 0.65, vdom: 1, vsrc: 1, vw: 400, vh: 267, relative_loudness: nan, optimal_format: 360p, user_qual: 0, release_version: youtube.player.web_20230507_00_rc00, debug_videoid: picasacid, 0sz: false, op: , yof: false, dis: , gpu: angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2), debug_playbackquality: medium, debug_date: wed may 10 2023 14:15:14 gmt-0300 (atlantic daylight time) } ns: bl, el: embedded, cpn: zgldbaicpjyhifny, ver: 2, cmt: 245.56, fmt: 18, fs: 1, rt: 278.962, euri: https://www.blogger.com/, lact: 1, cl: 530154564, mos: 0, state: 4, volume: 65, cbrand: google, cbr: chrome, cbrver: 112.0.0.0, c: web_embedded_player, cver: 1.20230507.00.00, cplayer: uniplayer, cmodel: chromebook, cos: cros, cosver: 14541.0.0, cplatform: desktop, hl: en_us, cr: ca, len: 333.183, fexp: 23983296,24004644,24007246,24080738,24135310,24219381,24255163,24405913,24415864,24439361,24443595,24468691,24486561,24516157,24532854,24534259,24556108,39323074, muted: 0, vis: 2, conn: 3, docid: picasacid, vct: 245.560, vd: 333.183, vpl: 0.000-245.560, vbu: 0.000-285.846, vpa: 1, vsk: 0, ven: 0, vpr: 1, vrs: 4, vns: 1, vec: null, vemsg: , vvol: 0.65, vdom: 1, vsrc: 1, vw: 1152, vh: 768, relative_loudness: nan, optimal_format: 360p, user_qual: 0, release_version: youtube.player.web_20230507_00_rc00, debug_videoid: picasacid, 0sz: false, op: , yof: false, dis: , gpu: angle_(intel,_mesa_intel(r)_uhd_graphics_(jsl),_opengl_es_3.2), debug_playbackquality: medium, debug_date: wed may 10 2023 14:15:29 gmt-0300 (atlantic daylight time) } on sat, 6 may 2023 at 04:14, youtube wrote: (without quotes):
+Your search - ---------- forwarded message --------- from: papa legba.n.b
+Suggestions:
+
+Make sure all words are spelled correctly.
+Try different keywords.
+Try more general keywords.
+Try fewer keywords.
+Canada
+E4S 1N4, Sainte-Marie-de-Kent, NB - Based on your places (Work)
+Update location
+More options in Menu
+
+=
+
+
+
+=3D"https://ci6.googleusercontent.com/proxy/TQwZqOu1oYEwCwiwOuAHPAJmyxnao8X=
+rAcDv0ZGNc5SMBRngNIWQQhiJa1AATTydRWQ8wcd6wJ0tR3nJHLjXy-nbd2-J3kOnAorhPSUwSw=
+iq_0hP0RE28g=3Ds0-d-e1-ft#https://www.gstatic.com/youtube/img/email/twitter=
+_email_icon_grey.png" height=3D"18" border=3D"0">
+
+
+
+chrome://serviceworker-internals/?devtools#:~:text=Worker%20startup%20for%20debugging.-,Registrations%20in%3A%20/home/chronos/u%2D55a42e9745e444878d83d15d225659746ed3a1cb%20(10),Start,-Scope%3A%20https%3A//drive
+https://www.google.com/imgres?imgurl=https://pbs.twimg.com/profile_images/778917395817791488/hnUWGtUk_400x400.jpg&tbnid=gyxfGm6IpsMVfM&vet=1&imgrefurl=https://twitter.com/bigsillyanimal&docid=cMUjdVjqfPp2oM&w=300&h=300&hl=en-CA&source=sh/x/im
+
+Copyright © 1999 – 2023 Googlehttps://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" Live streaming - YouTube Studiowww.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent Activity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><image><url>/profile/u/avatar.jpg?displayname=matthew amos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recent 
 
 https://m.youtube.com/channel/UCO5KFtwkFNLoBu6PVHqg59w#bottom-sheet.%20Papa.%20Legba.N.B..%5D(bloger.com)target=<channels ainwizzard.com.="" apple.com.="" bing.com.="" hannels.01="" https:="" https="" rainwizzard.blogspot.com="" www.="" www.rainwizzard.channels.-01.rainwizzard="">~<filehippo .com.="" .xml="" en.html="" encoding="utf-8" https:="" rss.itunes.apple.com="" version.01.="" window="" www.kyoceradocumentsolutions.us=""><rss version="2.0" xmlns:a10="http://www.w3.org/2005/Atom"><channel><title>Matthew Amos's Recent Activity..~^♠^.Rainwizzard.com.^♠^~.~^~.~^♠^.Rainwizzard.com.^♠^~.https://www.gstatic.com/policies/terms/pdf/20220105/it7r24p9/google_terms_of_service_en-GB.pdf.~^♠^.bing.com.^♠^~..~^~<a href=".~M^M^~^A^A^~." target="_blank" rel="nofollow"></a></title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<link></link><description>This is a dynamic feed of a user's activities.</description><language>en-US</language><lastbuilddate>Fri, 14 Jan 2022 21:55:04 Z</lastbuilddate><image><url>/profile/u/avatar.jpg?displayname=matthew amos&amp;size=extralarge&amp;version=00000000-0000-0000-0000-000000000000</url><title>Matthew Amos's Recent Activity</title><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity</image><a10:id>urn:uuid:be77449b-3766-4347-995f-ccdc46808731</a10:id><item><guid ispermalink="false">00000000-0000-0000-0000-000000000000637777941046010000</guid><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<a10:author><a10:name>Matthew Amos</a10:name></a10:author><title>Updated the website link to http://www.rainwizzard.com/</title><description>Updated the website link to &lt;a href="http://www.rainwizzard.com/" title="http://www.rainwizzard.com/" target="_blank" rel="nofollow noopener noreferrer"&gt;http://www.rainwizzard.com/&lt;/a&gt;</description><pubdate>Fri, 14 Jan 2022 21:55:04 Z</pubdate><a10:updated>2022-01-14T21:55:04Z</a10:updated></item><item><guid ispermalink="false">00000000-0000-0000-0000-000000000000637777941046010000</guid><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<a10:author><a10:name>Matthew Amos</a10:name></a10:author><title>Updated the company name</title><description>Updated the company name</description><pubdate>Fri, 14 Jan 2022 21:55:04 Z</pubdate><a10:updated>2022-01-14T21:55:04Z</a10:updated></item><item><guid ispermalink="false">00000000-0000-0000-0000-000000000000637777940661470000</guid><link></link>http://social.technet.microsoft.com/Profile/v1/Matthew%20Amos/activity<a10:author><a10:name>Matthew Amos</a10:name></a10:author><title>Welcome Matthew Amos!</title><description>Welcome Matthew Amos!</description><pubdate>Fri, 14 Jan 2022 21:54:26 Z</pubdate><a10:updated>2022-01-14T21:54:26Z</a10:updated></item></channel><rss><ssl>google.elgoog.xml~url.https://www.rainwizzard.com~rss.url&gt;~{https://www.facebook.com/EvilleEmpireYEG}~.^.~
 
