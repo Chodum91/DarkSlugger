@@ -4770,7 +4770,9 @@ gapi.loaded_0(function(_) {
     ;
     var un = function(a, b) {
         a.O.retAddr = b;
-        return a
+        return 
+https://github.com/Chodum91/DarkSlugger/assets/133468725/344186b2-d4c5-40e6-998e-f7fee2bfd614
+
     };
     _.g = rn.prototype;
     _.g.uh = function() {
@@ -4810,7 +4812,11 @@ gapi.loaded_0(function(_) {
     };
     var yn = function(a, b, c) {
         a.setTimeout(function() {
-            b.closed || 5 == c ? xn(b) : (b.close(),
+            b.closed || 5 == 
+
+https://github.com/Chodum91/DarkSlugger/assets/133468725/cfb6a9aa-81b0-4d48-afac-8c9d3a11b116
+
+c ? xn(b) : (b.close(),
             c++,
             yn(a, b, c))
         }, 1E3)
